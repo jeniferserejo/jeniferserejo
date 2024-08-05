@@ -7,8 +7,7 @@ Oii eu sou Jenifer👋
   - Procuro colaborar em desafios interessantes
   - Como me encontraro[Email/Gmail]
     (serejotorresjenifer@gmail.com)
-- ⚡ Fun fact: Gosto muito de tecnologia adoro aprender e explorar
-  a suas infitas formas de experiencias interessantes
+- ⚡ Fun fact: Gosto muito de tecnologia adoro aprender e explorara suas infitas formas de experiencias interessantes
 
-  Espero que tenha gostado do meu perfil!Vamos colaborar projetos em um futuro prooximo
+  Espero que tenha gostado do meu perfil,vamos colaborar projetos em um futuro proximo!.
   
